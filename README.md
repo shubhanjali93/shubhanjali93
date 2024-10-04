@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on PROJECT related to working of app.
 - 📫 How to reach me ...
 - 😄 Pronouns: I'm a nice person :)
-- ⚡ Fun fact: 
+- ⚡ Fun fact: i don't like monkeys
 
 <!---
 shubhanjali93/shubhanjali93 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
